@@ -1,0 +1,3 @@
+1. Preheat the oven to 350 degrees. Spray a 9×13″ baking dish with non-stick cooking spray.
+2. Bring a large pot of water to a boil and cook the penne pasta according to package directions and drain. Pour the cooked pasta back into the pot and add in the evaporated milk, about 2 1/2 cups (10 ounces) of the shredded cheddar and/or monterey jack cheese, and the parmesan cheese, and stir to combine.
+3. Pour the mac & cheese into the baking dish and top with leftover BBQ meat. Sprinkle with remaining cheddar and/or monterey jack cheese. Bake 20-25 minutes until heated through and cheese is melted. Serve with extra BBQ sauce, if desired.
